@@ -1,2 +1,0 @@
-# fortaleza
-pagina oficial fortaleza
